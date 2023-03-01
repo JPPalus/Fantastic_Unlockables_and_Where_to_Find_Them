@@ -59,7 +59,7 @@ Obtained by linking your Harry Potter Fan Club account[my.wizardingworld.com] (t
   
   
 
-### ) Twitch Drops[www.hogwartslegacy.com]
+### 7) Twitch Drops[www.hogwartslegacy.com]
 
 - Dragon-Eyed Spectacles (30 minutes)
 
